@@ -79,8 +79,8 @@
 35. Why do you insist upon destroying yourself? ─ Charles Bukowski
 36. It is the calm and silent waters that drown you. ─ Edwidge Danticat
 37. And it was too late. No one wants to believe something is too late, but it is always becoming too late, and then it is. ─ Elizabeth Strout
-38. 
-39. 
+38. **If you fell like you are losing everything, Remember that trees lose their leaves every year and still stand tall and wait for the better days to come.**
+39. **If you focus on the hurt, you will continue to suffer. If you focus on the lesson, you will continue to grow.**
 40. - up to 100...
 
 ── .✦ **[ ? ]**
@@ -95,9 +95,18 @@
 -
 1. - up to 100...
 
-── .✦ **[ ? ]**
+── .✦ Some quotes that you need to **remember.**
 -
-1. - up to 100...
+1. Learn to miss someone without wanting them back.
+2. Never forget who was with you when you had nothing.
+3. Never go for revenge, let them realize.
+4. Learn to limit the chances you give to others.
+5. Never go back to the person who betrayed you.
+6. Remember you don't need to always forgive.
+7. Don't pour your whole heart to someone, keep atleast some to yourself.
+8. Remember trust is earned, not given.
+9. Learn to be alone, not everyone will stay.
+10. Remember the past, but as an important lesson.
 
 
 
