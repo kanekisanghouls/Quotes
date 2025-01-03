@@ -37,7 +37,7 @@
 7. 
 8. 
 9. 
-10. - up to 100...
+10. - up to 600...
 
 
 ── .✦ **Pain Quotes**
@@ -81,7 +81,7 @@
 37. And it was too late. No one wants to believe something is too late, but it is always becoming too late, and then it is. ─ Elizabeth Strout
 38. **If you fell like you are losing everything, Remember that trees lose their leaves every year and still stand tall and wait for the better days to come.**
 39. **If you focus on the hurt, you will continue to suffer. If you focus on the lesson, you will continue to grow.**
-40. - up to 100...
+40. - up to 500...
 
 ── .✦ **[ ? ]**
 -
