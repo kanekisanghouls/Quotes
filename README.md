@@ -10,30 +10,21 @@
 4. The moon is getting red, isn't it bleeding?.
 5. My light is slowly fading away.
 6. It's always the word "I'm Fine.".
-7. 
-8. 
-9. 
-10. 
-11. 
-12. 
-13. 
-14. 
+7. Just like the stars, all I can do is admire you from afar.
+8. maybe when the time is right you will find me again.
+9. Let it hurt, until it can't hurt anymore.
+10. clouds are getting heavy.
+11. till our next eclipse my moon.
+12. I've been hugging a cactus for a long time.
+13. once the happiest girl, turned into the opposite.
+14. I'm holding a rose that full of thorns.
 15. 
 16. 
 17. 
 18. 
 19. 
-20. 
-21. 
-22. 
-23. 
-24. 
-25. 
-26. 
-27. 
-28. 
-29. 
-30. 
+20. - up to 100...
+
     
 ── .✦ **Motivation Quotes**
 -
@@ -46,27 +37,8 @@
 7. 
 8. 
 9. 
-10. 
-11. 
-12. 
-13. 
-14. 
-15. 
-16. 
-17. 
-18. 
-19. 
-20. 
-21. 
-22. 
-23. 
-24. 
-25. 
-26. 
-27. 
-28. 
-29. 
-30. 
+10. - up to 100...
+
 
 ── .✦ **Pain Quotes**
 -
@@ -100,16 +72,32 @@
 28. You will find that it is necessary to let things go, simply for the reason that they are heavy. ─ C. Joy Bell
 29. We crave permission opeenly to become our secret selves. ─ Salman Rushdie
 30. In this world love has no color -- yet how deeply my body is stained by yours. ─ Izumi Shikibu
-31. 
-32. 
-33. 
-34. 
-35. 
-36. 
-37. 
+31. There's something disturbing about recalling a warm memory and feeling utterly cold. ─ Gillian Flynn
+32. When you are not fed love on a silver spoon you learn to lick it off knives. ─ Lauren Eden
+33. Do you think the universe fights for souls to be together? Some things are too strange and strong to be coincidences. ─ Emery Allen
+34. I have always loved everything about you. Even what I didn't understand. ─ Albert Camus
+35. Why do you insist upon destroying yourself? ─ Charles Bukowski
+36. It is the calm and silent waters that drown you. ─ Edwidge Danticat
+37. And it was too late. No one wants to believe something is too late, but it is always becoming too late, and then it is. ─ Elizabeth Strout
 38. 
 39. 
-40. 
+40. - up to 100...
+
+── .✦ **[ ? ]**
+-
+1. - up to 100...
+
+── .✦ **[ ? ]**
+-
+1. - up to 100...
+
+── .✦ **[ ? ]**
+-
+1. - up to 100...
+
+── .✦ **[ ? ]**
+-
+1. - up to 100...
 
 
 
